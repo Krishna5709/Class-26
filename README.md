@@ -1,1 +1,1 @@
-# Class-26
+A milkshake is a creamy, sweet, and tasty drink 
